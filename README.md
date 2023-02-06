@@ -1,2 +1,1 @@
-# Muhammed
-Öner
+# kung ohk
